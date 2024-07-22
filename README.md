@@ -1,0 +1,1 @@
+CODSOFT Internship: Explore opportunities, projects, and insights into CodSoft's innovative software development culture. Discover your path to growth and learning in the dynamic world of tech with our internship program."
